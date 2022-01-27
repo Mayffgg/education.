@@ -1,0 +1,2 @@
+# education.
+everyone can learn
